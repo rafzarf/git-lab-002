@@ -6,4 +6,4 @@ Hallo gais ini asep
 
 Asep, kumaha damang?
 
-Eh si asep naha teu ngabales
+baik gan
